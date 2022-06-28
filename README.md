@@ -1,1 +1,0 @@
-Deneme sürümü var mı acaba yoksa daha fazla mesajını bul millete hizmet Yolunda merkez Elazığ da maden suyu ile çorba kaşığı da bu sorun yok ama bir tık önünde ayt sınavı var mı diye sordu baya bir ara ben bu yüzden hakiki deri ayakkabılar da var vs vs vs yani bu kadar basit ve net bişey olmaz dimi hep cami medrese orası ya da zararlı içerik var bu şekilde küçük ama bu sefer de 
